@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @SreeLakshmi1242
+- 👋 Hi, I’m SreeLakshmi
 - 👀 I’m interested problems
 - 🌱 I’m currently learning something I DONT KNOW
 - 💞️ I’m looking to collaborate and co-create meaningful and impactful ideas to reality
